@@ -1,0 +1,1 @@
+# SecuirtyAnalyst-Task6-OasisInfobyte
